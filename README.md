@@ -1,1 +1,1 @@
-# Shipkov Denis, Giniatullin Damir ISP- 3,4 2018 BO
+# Shipkov Denis, Giniatullin Damir, Gusejnov Orkhan ISP- 3,4 2018 BO
